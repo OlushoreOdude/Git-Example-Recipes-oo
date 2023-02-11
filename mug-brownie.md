@@ -16,8 +16,6 @@ Often times, I will skip the microwave stage, and just eat the brownie mix. Ther
 
 # Steps
 
-# Steps
-
 1. Add all the dry ingredients to a mug.
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
